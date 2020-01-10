@@ -12,7 +12,17 @@ Being the writer and performer of my own music allowed me to experiment with dif
 
 Our adventures as the Oneironauts found us gigging for the Sofar sounds circuit straight off the back of the first video and they wanted to film it to go on their channel
 
-https://drive.google.com/open?id=13k8W9C0LJOgFcmG1pA1q-bxY0gJZA7ad
+[Watch - Unreleased Sofar sounds performance](https://drive.google.com/open?id=13k8W9C0LJOgFcmG1pA1q-bxY0gJZA7ad)
+
+Thankfully this video wasn't released. I think the pressure really god us with this one. A big filled event and being filmed, I remember feeling like I was gonna black out during one of the songs. Not long after we were being booked for more Sofar sounds events across the UK and did another filmed gig in Bristol (this time we were a bit more comfortable, we've gotten better since but this was good enough). The video didn't get released until late December.
+
+[Watch - Sofar sounds bristol gig](https://drive.google.com/open?id=13k8W9C0LJOgFcmG1pA1q-bxY0gJZA7ad)
+
+Some reason we are really in there with the food scene and recieved regular gig requests from the stable pizza franchise and Mama Roux in birmingham great food, drinks and good times. We launched stable pizza's 'Stable Sessions' to promote their live music events. 
+
+[Watch - Stable Sessions](https://www.youtube.com/watch?v=-AZDz9ANspo)
+
+
 
 We made attempts at recording an E.P at the Uni. Time constraints makes this difficult and I think expectations was to have the perfect takes first time and leave with a full made project. from experience I tried to set it up to be a series of days to really figure out how to best set up and record, it wasn't the best final product as we should have used a click track to keep everything synced up. the layout we used meant it wasn't very easy to hear the percussion playing and the tempo kept changing between the chorus and verses. I think if we find a way to agree on approach and time to explore different recording methods, we could create a successful project. there was still fun moments though.
 [Watch - Marshmallowland jam](https://www.instagram.com/p/BuXVmBJnpQQ/?utm_source=ig_web_copy_link) 
