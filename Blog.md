@@ -1,4 +1,11 @@
 # 7MU011-UW1
+## Music Performance
+I've been looking into ways to improve self learning within music performance and production. I'd been fairly decent with production but not very consistent and the only performances I'd done was rapping to backing tracks. So I decided I'd dive in the deep end and start playing keyboard at gigs for other artists while figuring out songs of my own. I was a challenging experience having to learn someones songs when I've never even experienced playing an instrument live before and so after somehow surviving the first rehearsal with different bands I would put my head down and work out as much theory behind their music as possible so that I had a better understanding for what it was I was attempting to do.
+
+
+Evenutally I formed a group called Oneironauts playing my own music which meant I was at least more familiar with it our first piece of promotional material was released which lead to a lot of gig offers.
+<iframe src="https://www.facebook.com/plugins/video.php?href=https%3A%2F%2Fwww.facebook.com%2Foneironautsmusic%2Fvideos%2F587310271696366%2F&show_text=0&width=560" width="560" height="315" style="border:none;overflow:hidden" scrolling="no" frameborder="0" allowTransparency="true" allowFullScreen="true"></iframe>
+
 
 ## Wake'n'Make Production Videos
 
