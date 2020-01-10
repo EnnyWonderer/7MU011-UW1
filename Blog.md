@@ -46,3 +46,9 @@ got it
 With being selected for the future bubblers of 2020 and having my application for funding from the MOBO's help musician funders. I'll be able to manage social media content with scheduled posts by signing up to hootsuit. I'm going to use the existing #wakenmake posts found on the hashtag and repost them to fill the page with more content. This will influence other artists to post their work as it will look like the page is busy and a lot more established. also the workload will be a lot easier as I wont have to monitor it everyday to make posts etc
 
 
+## SynesTeacher Build
+
+
+Unfortunately, starting this project was proving very difficult due to financial situations. I spend a lot of time trying to do affordable trial and error to get a set up of lights which led to me burning out the NodeMCU amongst other things going wrong. Once I was making a bit of money I was able to afford the things I needed to get things going. Here's how that went:
+
+[Folder - Build Vids](https://drive.google.com/open?id=1iqhUnvicbheJ1rDDt8oQTr20BvJAMedQ)
