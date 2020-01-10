@@ -25,9 +25,10 @@ Some reason we are really in there with the food scene and recieved regular gig 
 
 
 We made attempts at recording an E.P at the Uni. Time constraints makes this difficult and I think expectations was to have the perfect takes first time and leave with a full made project. from experience I tried to set it up to be a series of days to really figure out how to best set up and record, it wasn't the best final product as we should have used a click track to keep everything synced up. the layout we used meant it wasn't very easy to hear the percussion playing and the tempo kept changing between the chorus and verses. I think if we find a way to agree on approach and time to explore different recording methods, we could create a successful project. there was still fun moments though.
+
 [Watch - Marshmallowland jam](https://www.instagram.com/p/BuXVmBJnpQQ/?utm_source=ig_web_copy_link) 
 
-
+Here's some more lil snippets of what we get up to on our [instagram](https://www.instagram.com/oneironauts_music/?hl=en) 
 
 ## Wake'n'Make Production Videos
 
