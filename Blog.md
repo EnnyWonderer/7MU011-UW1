@@ -4,7 +4,17 @@ I've been looking into ways to improve self learning within music performance an
 
 
 Evenutally I formed a group called Oneironauts playing my own music which meant I was at least more familiar with it our first piece of promotional material was released which lead to a lot of gig offers.
-<iframe src="https://www.facebook.com/plugins/video.php?href=https%3A%2F%2Fwww.facebook.com%2Foneironautsmusic%2Fvideos%2F587310271696366%2F&show_text=0&width=560" width="560" height="315" style="border:none;overflow:hidden" scrolling="no" frameborder="0" allowTransparency="true" allowFullScreen="true"></iframe>
+
+[Watch - Oneironauts - Headphones On](https://www.facebook.com/plugins/video.php?href=https%3A%2F%2Fwww.facebook.com%2Foneironautsmusic%2Fvideos%2F587310271696366%2F&show_text=0&width=560)
+
+
+Our adventures as the Oneironauts found us gigging for the Sofar sounds circuit straight off the back of the first video and they wanted to film it to go on their channel
+
+https://drive.google.com/open?id=13k8W9C0LJOgFcmG1pA1q-bxY0gJZA7ad
+
+We made attempts at recording an E.P at the Uni. Time constraints makes this difficult and I think expectations was to have the perfect takes first time and leave with a full made project. from experience I tried to set it up to be a series of days to really figure out how to best set up and record, it wasn't the best final product as we should have used a click track to keep everything synced up. the layout we used meant it wasn't very easy to hear the percussion playing and the tempo kept changing between the chorus and verses. I think if we find a way to agree on approach and time to explore different recording methods, we could create a successful project. there was still fun moments though.
+[Watch - Marshmallowland jam](https://www.instagram.com/p/BuXVmBJnpQQ/?utm_source=ig_web_copy_link) 
+
 
 
 ## Wake'n'Make Production Videos
