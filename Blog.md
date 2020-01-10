@@ -7,6 +7,8 @@ Evenutally I formed a group called Oneironauts playing my own music which meant 
 
 [Watch - Oneironauts - Headphones On](https://www.facebook.com/plugins/video.php?href=https%3A%2F%2Fwww.facebook.com%2Foneironautsmusic%2Fvideos%2F587310271696366%2F&show_text=0&width=560)
 
+Being the writer and performer of my own music allowed me to experiment with different factors that would entertain an audience 
+# find daniel levitin quote
 
 Our adventures as the Oneironauts found us gigging for the Sofar sounds circuit straight off the back of the first video and they wanted to film it to go on their channel
 
