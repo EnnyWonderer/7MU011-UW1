@@ -19,7 +19,9 @@ I don't know if it was the idea of me offering a percentage of any profits made 
 
 I found myself responding to people who wanted to do their own wakenmakes with "yeah its really habit forming" and so came up with the slogan 'consistency becomes habitual' I also wanted to keep the feel of the 'stoner creative' vibe and so went with Hemp themed colour (spin-off to wake'n'bake... maybe I was high when I started making these videos).
 
-Since there is now a label on it, its become much harder to grow the Wake'n'Make concept. People agreed to be on the mailing list to do their own creations and I started sending out weekly challenges, but was getting nothing back... it was becoming difficult to find time to manage creating posts to do daily and so I took a break.
+
+
+Since there is now a label on it, its become much harder to grow the Wake'n'Make concept. People agreed to be on the mailing list to do their own creations and I started sending out weekly challenges, but was getting nothing back... I even started to figure out how to encorporate a bit more hints and tips into the creative process so it was both entertaining and educational. The break between the last videos meant I was getting less veiwers and so I felt stuck. it was becoming difficult to find time to manage creating posts to do daily and so I took a break to figure out a more convenient approach.
 
 ## Future Bubblers and MOBO's helped.
 
