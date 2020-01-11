@@ -1,24 +1,24 @@
 # 7MU011-UW1
 ## Music Performance
-I've been looking into ways to improve self learning within music performance and production. I'd been fairly decent with production but not very consistent and the only performances I'd done was rapping to backing tracks. So I decided I'd dive in the deep end and start playing keyboard at gigs for other artists while figuring out songs of my own. I was a challenging experience having to learn someones songs when I've never even experienced playing an instrument live before and so after somehow surviving the first rehearsal with different bands I would put my head down and work out as much theory behind their music as possible so that I had a better understanding for what it was I was attempting to do.
+I've been looking into ways to improve self learning within music performance and production. I'd been fairly decent with production but not very consistent and the only performances I'd done was rapping to backing tracks. So I decided I'd dive in the deep end and start playing keyboard at gigs for other artists while figuring out songs of my own. It was a challenging experience having to learn someones songs when I've never even experienced playing an instrument live before and so after somehow surviving the first rehearsal with different bands I would put my head down and work out as much theory behind their music as possible so that I had a better understanding for what it was I was attempting to do.
 
+As an aid to learning theory, I started tutoring music production and adding in the bits of thoery that I'd learnt. I found that if you can communicate something in many different ways then it becomes solidified in your knowledge bank. The tutoring sessions further progressed into teaching at the royal school of wolverhampton and at the switch project in dovecoats primary (the switch project is for the development of teenagers outside of education). Working in such environments, having to come up with my own plans of study and witnessing that they wont just be engaged by whatever you deliver really improved my skills of adapting a learning plan on the fly. The first sessions were the scariest, the kids literally huff and puff until you start doing something they will potentially enjoy at it felt like constant rejection. Even more difficult is when you have to deliver a music workshop in a school that has no working equipment and you have to find as many non-broken things as possible to put together a decent class. Once I'd delevered a terms worth of workshops I'd went with an approach to better serve their requirements and would ask each student what they want to focus on, if they didn't know I would show them something different each time untill they found what they liked. 
 
-Evenutally I formed a group called Oneironauts playing my own music which meant I was at least more familiar with it our first piece of promotional material was released which lead to a lot of gig offers.
+I formed a group called Oneironauts playing my own music which meant I was at least more familiar with it. Being the writer and performer of my own music allowed me to experiment with different factors that would entertain an audience, each rehearsal we would figure out different ways and fine tune our performances # find daniel levitin quote. The band consists of Shiv - Cajon and vocals, Cooper - Bass and backing vocals and myself - Keyboard and vocals. Our first video was done during a rehearsal upstairs in a pub and the release was well recieved, leading to a lot of gig offers.
 
 [Watch - Oneironauts - Headphones On](https://www.facebook.com/plugins/video.php?href=https%3A%2F%2Fwww.facebook.com%2Foneironautsmusic%2Fvideos%2F587310271696366%2F&show_text=0&width=560)
 
-Being the writer and performer of my own music allowed me to experiment with different factors that would entertain an audience 
-# find daniel levitin quote
+
 
 Our adventures as the Oneironauts found us gigging for the Sofar sounds circuit straight off the back of the first video and they wanted to film it to go on their channel
 
 [Watch - Unreleased Sofar sounds performance](https://drive.google.com/open?id=13k8W9C0LJOgFcmG1pA1q-bxY0gJZA7ad)
 
-Thankfully this video wasn't released. I think the pressure really god us with this one. A big filled event and being filmed, I remember feeling like I was gonna black out during one of the songs. Not long after we were being booked for more Sofar sounds events across the UK and did another filmed gig in Bristol (this time we were a bit more comfortable, we've gotten better since but this was good enough). The video didn't get released until late December.
+Thankfully this video wasn't released, I think the pressure really got to us with this one I was making a series of mistakes in the performance. A big filled event and being filmed, I remember feeling like I was gonna black out during one of the songs. However the audience still loved what they heard and we managed to make a good enough impression. Not long after we were being booked for more Sofar sounds events across the UK and did another filmed gig in Bristol (this time we were a bit more comfortable, we've gotten better since but this was good enough). The video didn't get released until late December.
 
 [Watch - Sofar sounds bristol gig](https://drive.google.com/open?id=13k8W9C0LJOgFcmG1pA1q-bxY0gJZA7ad)
 
-Some reason we are really in there with the food scene and recieved regular gig requests from the stable pizza franchise and Mama Roux in birmingham great food, drinks and good times. We launched stable pizza's 'Stable Sessions' to promote their live music events. 
+Some reason we are really in there with the food scene and recieved regular gig requests from the stable pizza franchise and Digbeth dining club in birmingham (great food, drinks and good times). We launched stable pizza's 'Stable Sessions' to promote their live music events. 
 
 [Watch - Stable Sessions](https://www.youtube.com/watch?v=-AZDz9ANspo)
 
@@ -32,8 +32,7 @@ Here's some more lil snippets of what we get up to on our [instagram](https://ww
 
 ## Wake'n'Make Production Videos
 
-
-This shows the birth of the Wake'n'Make concept, through developing a pilot based of peoples interaction it was fine tuned to both entertain and inspire.
+For production, I wanted to improve my consistency of making files as it wasn't a regular enough practice, I also wanted to have more content to promote my artist page as I hadn't been releasing any music. This shows the birth of the Wake'n'Make concept, through developing a pilot based of peoples interaction it was fine tuned to both entertain and inspire. It's in the name, wake up and make something.
 
 [Watch - Wake'n'Make Pilot](https://www.instagram.com/s/aGlnaGxpZ2h0OjE3ODYwMjk4ODI3NTcxOTg0?igshid=10clqo4b1cxue&story_media_id=2171812567297936505_4485374858)
 
@@ -41,7 +40,7 @@ This shows the birth of the Wake'n'Make concept, through developing a pilot base
 
 [Watch - Wake'n'Make Ableton Series](https://www.instagram.com/s/aGlnaGxpZ2h0OjE3ODYwMjk4ODI3NTcxOTg0?igshid=10clqo4b1cxue&story_media_id=2171812567297936505_4485374858)
 
-It appeared to be a very successful endeavour, regular messages from people showing their interest in the files made and joining the mailing list to have access to the files. After taking a break from regular posting a friend brought up the idea of branching it out further. Having it as a curator for new music and art and eventually sell merch and sponsor artists. WHY THE HECK NOT!?
+It appeared to be a very successful endeavour, regular messages from people showing their interest in the files made and joining the mailing list to have access to the files for writing purposes or to add their input to the production itself. Poets, rappers, producers and singers were all getting in contact to hear more. The creating process had become habitual and the experiment was complete. After taking a break from regular posting a friend brought up the idea of branching it out further. Having it as a curator for new music and art and eventually sell merch and sponsor artists. WHY THE HECK NOT!?
 
 Once I was sure that it was a concept that people were interested in, I Made the Wake'n'Make social media pages and bought the URL www.wakenmake.co.uk (not yet running). I searched for the designer of the popular GIF file 'hang loose' and asked about using their GIF as the official logo for wake'n'make.
 I don't know if it was the idea of me offering a percentage of any profits made that put him of but after that he wouldn't even accept money... I told him the idea of the potential merch and stuff and he dissed me. The discussion showed me that they were not willing to negotiate what so ever and was playing very difficult even when trying to establish a better deal. So I designed a temp banner logo myself.
@@ -51,7 +50,7 @@ I found myself responding to people who wanted to do their own wakenmakes with "
 
 
 
-Since there is now a label on it, its become much harder to grow the Wake'n'Make concept. People agreed to be on the mailing list to do their own creations and I started sending out weekly challenges, but was getting nothing back... I even started to figure out how to encorporate a bit more hints and tips into the creative process so it was both entertaining and educational. The break between the last videos meant I was getting less veiwers and so I felt stuck. it was becoming difficult to find time to manage creating posts to do daily and so I took a break to figure out a more convenient approach.
+Since there is now a label on it, its become much harder to grow the Wake'n'Make concept (possibly the pressure I've put on myself with putting a label on it taking away the free flowingness it once had). People agreed to be on the mailing list to do their own creations and I started sending out weekly challenges, but was getting nothing back... I even started to figure out how to encorporate a bit more hints and tips into the creative process so it was both entertaining and educational. The break between the last videos meant I was getting less veiwers and so I felt stuck. it was becoming difficult to find time to manage creating posts to do daily and so I took a break to figure out a more convenient approach.
 
 ## Future Bubblers and MOBO's helped.
 
