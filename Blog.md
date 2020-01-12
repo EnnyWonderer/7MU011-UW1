@@ -83,3 +83,8 @@ With being selected for the future bubblers of 2020 and having my application fo
 Unfortunately, starting this project was proving very difficult due to financial situations. I spend a lot of time trying to do affordable trial and error to get a set up of lights which led to me burning out the NodeMCU amongst other things going wrong. Once I was making a bit of money I was able to afford the things I needed to get things going. Here's how that went:
 
 [Folder - Build Vids](https://drive.google.com/open?id=1iqhUnvicbheJ1rDDt8oQTr20BvJAMedQ)
+
+
+the colours were taken from schraibins colour mapping and turned into RGB values using [PixelZoomer](http://pixelzoomer.com/eye-dropper-extract-hex-rgb-color-values/)
+
+https://www.mentalfloss.com/article/88417/12-famous-artists-synesthesia
