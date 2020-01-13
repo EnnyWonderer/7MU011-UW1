@@ -87,4 +87,5 @@ Unfortunately, starting this project was proving very difficult due to financial
 
 the colours were taken from schraibins colour mapping and turned into RGB values using [PixelZoomer](http://pixelzoomer.com/eye-dropper-extract-hex-rgb-color-values/)
 
-https://www.mentalfloss.com/article/88417/12-famous-artists-synesthesia
+https://www.mentalfloss.com/article/88417/12-famous-artists-synesthesia 
+https://cycling74.com/forums/multi-colors-in-a-kslider
