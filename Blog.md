@@ -1,10 +1,10 @@
 # 7MU011-UW1
 ## Music Performance
-I've been looking into ways to improve self learning within music performance and production. I'd been fairly decent with production but not very consistent and the only performances I'd done was rapping to backing tracks. So I decided I'd dive in the deep end and start playing keyboard at gigs for other artists while figuring out songs of my own. It was a challenging experience having to learn someones songs when I've never even experienced playing an instrument live before and so after somehow surviving the first rehearsal with different bands I would put my head down and work out as much theory behind their music as possible so that I had a better understanding for what it was I was attempting to do.
+I've been looking into ways to improve self learning within music performance and production. I'd been fairly decent with production but not very consistent and the only performances I'd done was rapping to backing tracks. So I decided I'd dive in the deep end and start playing keyboard at gigs for other artists while figuring out songs of my own. It was a challenging experience having to learn someone’s songs when I've never even experienced playing an instrument live before and so after somehow surviving the first rehearsal with different bands I would put my head down and work out as much theory behind their music as possible so that I had a better understanding for what it was I was attempting to do.
 
-As an aid to learning theory, I started tutoring music production and adding in the bits of thoery that I'd learnt. I found that if you can communicate something in many different ways then it becomes solidified in your knowledge bank. The tutoring sessions further progressed into teaching at the royal school of wolverhampton and at the switch project in dovecoats primary (the switch project is for the development of teenagers outside of education). Working in such environments, having to come up with my own plans of study and witnessing that they wont just be engaged by whatever you deliver really improved my skills of adapting a learning plan on the fly. The first sessions were the scariest, the kids literally huff and puff until you start doing something they will potentially enjoy at it felt like constant rejection. Even more difficult is when you have to deliver a music workshop in a school that has no working equipment and you have to find as many non-broken things as possible to put together a decent class. Once I'd delevered a terms worth of workshops I'd went with an approach to better serve their requirements and would ask each student what they want to focus on, if they didn't know I would show them something different each time untill they found what they liked. 
+As an aid to learning theory, I started tutoring music production and adding in the bits of theory that I'd learnt. I found that if you can communicate something in many different ways then it becomes solidified in your knowledge bank. The tutoring sessions further progressed into teaching at the royal school of Wolverhampton and at the switch project in Dovecoats primary (the switch project is for the development of teenagers outside of education). Working in such environments, having to come up with my own plans of study and witnessing that they wont just be engaged by whatever you deliver really improved my skills of adapting a learning plan on the fly. The first sessions were the scariest, the kids literally huff and puff until you start doing something they will potentially enjoy at it felt like constant rejection. Even more difficult is when you have to deliver a music workshop in a school that has no working equipment and you have to find as many non-broken things as possible to put together a decent class. Once I'd delivered a terms worth of workshops I'd went with an approach to better serve their requirements and would ask each student what they want to focus on, if they didn't know I would show them something different each time until they found what they liked. 
 
-I formed a group called Oneironauts playing my own music which meant I was at least more familiar with it. Being the writer and performer of my own music allowed me to experiment with different factors that would entertain an audience, each rehearsal we would figure out different ways and fine tune our performances # find daniel levitin quote. The band consists of Shiv - Cajon and vocals, Cooper - Bass and backing vocals and myself - Keyboard and vocals. Our first video was done during a rehearsal upstairs in a pub and the release was well recieved, leading to a lot of gig offers.
+I formed a group called Oneironauts playing my own music which meant I was at least more familiar with it. Being the writer and performer of my own music allowed me to experiment with different factors that would entertain an audience, each rehearsal we would figure out different ways and fine tune our performances # find Daniel Levitin quote. The band consists of Shiv - Cajon and vocals, Cooper - Bass and backing vocals and myself - Keyboard and vocals. Our first video was done during a rehearsal upstairs in a pub and the release was well received, leading to a lot of gig offers.
 
 [Watch - Oneironauts - Headphones On](https://www.facebook.com/plugins/video.php?href=https%3A%2F%2Fwww.facebook.com%2Foneironautsmusic%2Fvideos%2F587310271696366%2F&show_text=0&width=560)
 
@@ -18,7 +18,7 @@ Thankfully this video wasn't released, I think the pressure really got to us wit
 
 [Watch - Sofar sounds bristol gig](https://drive.google.com/open?id=13k8W9C0LJOgFcmG1pA1q-bxY0gJZA7ad)
 
-Some reason we are really in there with the food scene and recieved regular gig requests from the stable pizza franchise and Digbeth dining club in birmingham (great food, drinks and good times). We launched stable pizza's 'Stable Sessions' to promote their live music events. 
+Some reason we are really in there with the food scene and received regular gig requests from the stable pizza franchise and Digbeth dining club in Birmingham (great food, drinks and good times). We launched stable pizza's 'Stable Sessions' to promote their live music events. 
 
 [Watch - Stable Sessions](https://www.youtube.com/watch?v=-AZDz9ANspo)
 
@@ -28,11 +28,11 @@ We made attempts at recording an E.P at the Uni. Time constraints makes this dif
 
 [Watch - Marshmallowland jam](https://www.instagram.com/p/BuXVmBJnpQQ/?utm_source=ig_web_copy_link) 
 
-Here's some more lil snippets of what we get up to on our [instagram](https://www.instagram.com/oneironauts_music/?hl=en) 
+Here's some more lil snippets of what we get up to on our [Instagram](https://www.instagram.com/oneironauts_music/?hl=en) 
 
 ## Wake'n'Make Production Videos
 
-For production, I wanted to improve my consistency of making files as it wasn't a regular enough practice, I also wanted to have more content to promote my artist page as I hadn't been releasing any music. This shows the birth of the Wake'n'Make concept, through developing a pilot based of peoples interaction it was fine tuned to both entertain and inspire. It's in the name, wake up and make something.
+For production, I wanted to improve my consistency of making files as it wasn't a regular enough practice, I also wanted to have more content to promote my artist page as I hadn't been releasing any music. This shows the birth of the Wake'n'Make concept, through developing a pilot based of people’s interaction it was fine tuned to both entertain and inspire. It's in the name, wake up and make something.
 
 [Watch - Wake'n'Make Pilot](https://www.instagram.com/s/aGlnaGxpZ2h0OjE3ODYwMjk4ODI3NTcxOTg0?igshid=10clqo4b1cxue&story_media_id=2171812567297936505_4485374858)
 
@@ -50,13 +50,13 @@ I found myself responding to people who wanted to do their own wakenmakes with "
 
 
 
-Since there is now a label on it, its become much harder to grow the Wake'n'Make concept (possibly the pressure I've put on myself with putting a label on it taking away the free flowingness it once had). People agreed to be on the mailing list to do their own creations and I started sending out weekly challenges, but was getting nothing back... I even started to figure out how to encorporate a bit more hints and tips into the creative process so it was both entertaining and educational. The break between the last videos meant I was getting less veiwers and so I felt stuck. it was becoming difficult to find time to manage creating posts to do daily and so I took a break to figure out a more convenient approach.
+Since there is now a label on it, its become much harder to grow the Wake'n'Make concept (possibly the pressure I've put on myself with putting a label on it taking away the free flowingness it once had). People agreed to be on the mailing list to do their own creations and I started sending out weekly challenges, but was getting nothing back... I even started to figure out how to incorporate a bit more hints and tips into the creative process so it was both entertaining and educational. The break between the last videos meant I was getting less viewers and so I felt stuck. it was becoming difficult to find time to manage creating posts to do daily and so I took a break to figure out a more convenient approach.
 
 ## Future Bubblers and MOBO's helped.
 
 During my journey in performance:
 
- I played for ali at giles house at the fest etc
+ I played for Ali at Giles house at the fest etc
  
 bubblers came to wolves showed them my own stuff
 
