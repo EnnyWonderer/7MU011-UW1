@@ -76,3 +76,5 @@ while developing my build I had to refer to the forum A LOT to be able to get ce
 https://cycling74.com/forums/multi-colors-in-a-kslider
 
 This could have almost made my whole project futile and become 1 simple object. However, the kslider has limitations which wouldn't allow for 1 possible colour at a time. Crises averted!
+
+Due to my clumbsyness I managed to blow the strip LED's days before it was to be handed in.... what rubs salt into the would is that I was finally managing to work the Serialports to take the information correctly.. looks like im going to have to focus on building it theoretically with the maxpatch
