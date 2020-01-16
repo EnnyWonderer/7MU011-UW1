@@ -54,25 +54,10 @@ Since there is now a label on it, its become much harder to grow the Wake'n'Make
 
 ## Future Bubblers and MOBO's helped.
 
-During my journey in performance:
+During my journey in performance I was playing keys for a band called 'Rais at Night' we had the opportunity to play at Giles Peterson's home studio sessions and at an event called future bubblers. The lead vocallist of the band was picked for a project called future bubblers which meant that alumni would be given special provisions such as a mentor and further progression within their music careers. Further in I played bass with the Rais at Night at Peterson's festival 'We Out Here Fest'. I spoke to some of the previous bubblers and they explained the benefits of being a future bubbler. The following month, the future bubblers team announced that Wolverhampton had become their next focus city and they wanted to meet artists to discuss their plans. The introduced the future bubblers project and encouraged us to apply, did interviews with all the artists and played the artists music on 'Worldwide FM'. I later recieved an email asking if the Oneironauts would perform for the Wolverhampton Bloc Party they would be setting up later down the line (a performance which had them impressed). I clumsily assumed that this meant that I was a potential candidate for the future bubblers until I luckily send out an email asking if the interview that was previously done counted as an application... the showed me how to apply properly.
 
- I played for Ali at Giles house at the fest etc
- 
-bubblers came to wolves showed them my own stuff
-
-they booked oneironauts for block party
-
-applied to be a future bubbler
-
-got it
-
-at the induction they brought it funders
-
-never usually worked
-
-applied with a motive in mind
-
-got it
+Months passed and I was greatful to see that I had been seleceted for the future bubblers of 2020 and that I would be attending an induction where I would be given a press shot, would discuss who my music mentor would be (still waiting to find out) would be given workshops on music collaboration and abletonn live, and would be introduced to some funders to discuss what works and what doesn't work in applications.
+Usually I read an application and find a reason why it doesn't apply to me, but after being selected for future bubblers it just felt like this may be the chance I'd been looking for to know that I'm worth this sort of thing. I spent time really thinking out a decent application and making sure I filled it out correctly to their requirements (leaving out my dream to save the world). Again, with luck on my side I was accepted for the funding and will recieve £2k to go towards developing my career.
 
 With being selected for the future bubblers of 2020 and having my application for funding from the MOBO's help musician funders. I'll be able to manage social media content with scheduled posts by signing up to hootsuit. I'm going to use the existing #wakenmake posts found on the hashtag and repost them to fill the page with more content. This will influence other artists to post their work as it will look like the page is busy and a lot more established. also the workload will be a lot easier as I wont have to monitor it everyday to make posts etc
 
