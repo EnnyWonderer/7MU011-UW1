@@ -72,5 +72,7 @@ Unfortunately, starting this project was proving very difficult due to financial
 
 the colours were taken from schraibins colour mapping and turned into RGB values using [PixelZoomer](http://pixelzoomer.com/eye-dropper-extract-hex-rgb-color-values/)
 
-https://www.mentalfloss.com/article/88417/12-famous-artists-synesthesia 
+while developing my build I had to refer to the forum A LOT to be able to get certain outcome and I would come across something that would completely change the way I was trying to do a long process making it an extrememly easy and short one (like the coll object for saving presets, I was gonna make preset slots and duplicated them which would have limited how many presets could be made..). one interesting, almost gamechanging discovery was this.
 https://cycling74.com/forums/multi-colors-in-a-kslider
+
+This could have almost made my whole project futile and become 1 simple object. However, the kslider has limitations which wouldn't allow for 1 possible colour at a time. Crises averted!
